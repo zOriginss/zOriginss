@@ -1,3 +1,5 @@
+- This is an ALT account before I recover my Primary registered email on this website.
+-
 - zOriginss / zFrostK1LL // He/Him - Does not prefer or care.
 - <span style="color: #24A1DE;">Telegram: @Dat_Origins</span>
 - <span style="color: #7289da;">Discord: @Originss_</span>
